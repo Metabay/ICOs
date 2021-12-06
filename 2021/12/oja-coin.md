@@ -1,3 +1,6 @@
 # OJA Coin ICO Due Diligence
 OJA is a crypto trading platform that enables anyone to buy, sell, earn and pay with cryptocurrencies instantly without deep knowledge of technical and financial requirement. With its digital currency OJA Coin is the right crypto coin at the right time for you to start investing using a crypto coin. People from all walks of life in every country decided to learn more about crypto and its many advantages. OJA Coin is also fully decentralized, allowing anyone to make payments instantly with almost zero transaction fees. With OJA Coin, you can spend, earn, trade, mine, integrate and join our community of people or businesses providing products or services for humanity and unity as a goal to make the world a better place. In a world that has begun to switch to digital transactions, OJA Coin is one of the right alternatives for your cryptocurrency choices. When the growth of cryptocurrency in society is designed only to support users in conducting Peer-To-Peer transactions, OJA Coin can be used and supports good hearted people to make the world a better place in the coolest way.
+Read more: [OJA Coin](https://metabay.network/ico/oja-coin)
 ## Risks
+## Website
+* Domain: None
